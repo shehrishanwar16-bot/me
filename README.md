@@ -1,4 +1,4 @@
-## hi, i'm shehrish 👋
+## hi, i'm Shehrish 👋
 
 okay so i just made a GitHub account and i have no idea what i'm doing yet — but here i am! 🎉
 
