@@ -1,6 +1,6 @@
 ## Hi, I'm Shehrish 👋
 
-Okay so I just made a GitHub account and I have no idea what I'm doing yet — but here I am! 🎉
+Okay so I just made a GitHub account and I have no idea what I'm doing yet,but here I am! 🎉
 
 ## A little about me ✨
 - ⚖️ Law student by day, trying to survive readings and case studies
